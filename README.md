@@ -44,7 +44,7 @@ Students preparing for **SSC, Railway, other government recruitment exams**, and
 Nistha Academy provides structured learning resources focused on building strong fundamentals, practical problem-solving skills, and confidence for competitive examinations.
 
 - **Website:** https://nisthaacademy.com/
-- **WhatsApp (enquiries):** +91 93467 93562
+
 
 ---
 
